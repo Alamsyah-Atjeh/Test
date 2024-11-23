@@ -1,1 +1,0 @@
-Alamsyah-Atjeh
